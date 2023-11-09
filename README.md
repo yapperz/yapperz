@@ -1,4 +1,4 @@
-i Am Yapz
+i Am Yapz .
 I do NOTHING .
-Addme On Discor
+Addme On Discor,
 @yapperz
